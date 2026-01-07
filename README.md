@@ -1,4 +1,5 @@
 <img src="https://i.pinimg.com/736x/1a/79/c7/1a79c782fbeaf215210e89e9d47ec345.jpg" alt="alternatetext">
+ringed seal
 
 <!--
 **decolita/decolita** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
