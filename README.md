@@ -4,7 +4,7 @@ ringed seal
 <img src="https://seagrant.uaf.edu/marine-ed/mm/images/ribbon-seal-rev.jpg" alt="alternatetext">
 ribbon seal
 
-<img src="https://oceanconservancy.org/wp-content/uploads/2017/04/White_Lorenzo_Ragazzi.webp" alt="alternatetext">
+<img src="https://alive.mblycdn.com/al/resized/2015/04/730x487/c078fb2b925254fd8bce359a12ff648c.jpg" alt="alternatetext">
 baby harp seal
 <!--
 **decolita/decolita** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
