@@ -1,6 +1,7 @@
-hi i drew this a few months ago and i want people to see it <img src="https://64.media.tumblr.com/3f6334c5117fa8ec33720d25e212a48f/937a42fa20fd864d-69/s75x75_c1/f856ab32a87f7be4dd8bbd31e0e8257dd82dbf28.gifv">
+hi i drew this a few months ago and i want people to see it <img src="https://64.media.tumblr.com/3f6334c5117fa8ec33720d25e212a48f/937a42fa20fd864d-69/s75x75_c1/f856ab32a87f7be4dd8bbd31e0e8257dd82dbf28.gifv"> its a dewgong cream soda!
 <img src="https://64.media.tumblr.com/36d22e56684154b5e3fee47bd9cb115f/d61fdde9bc6d16df-b6/s2048x3072/6bf8177f72e4998ae4b8cb0bb2b0e30390216841.pnj">
 
+--- -- -- -- -- -- ---- -- -- -
 <img src="https://i.pinimg.com/736x/1a/79/c7/1a79c782fbeaf215210e89e9d47ec345.jpg" alt="alternatetext">
 ringed seal
 
