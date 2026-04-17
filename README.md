@@ -1,14 +1,14 @@
 
-<img width="550" height="700" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
-<img width="550" height="700" src="https://artx-images.s3.eu-west-1.amazonaws.com/195381/chat-uploads/9ZWKqCkShg1879Kx-BU0LvVFIdAw1QhMN">
-<img width="550" height="700" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
+<img width="800" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
+<img width="700" height="500" src="https://artx-images.s3.eu-west-1.amazonaws.com/195381/chat-uploads/9ZWKqCkShg1879Kx-BU0LvVFIdAw1QhMN">
+<img width="800" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
 </p>rosalie - she/her, 5teen (oct 14 🎂) - ENG+ITA (sto ancora imparando)</p>
 </p>w2int since i'm usually offtab/afk ... cudcomf so feel free to c+h anytime if im alone even if c+h isnt in my name ^_^<p>
 
 </p> more info about me in my strawpage vv</p>
 </p><a href="https://rorosalie.straw.page">strawpage</a> . <a href="https://decolita.atabook.org/">atabook</a> . <a href="https://resite.link/hardapplecandy">resite.link</a> 
 
-<img width="550" height="700" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
+<img width="800" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
 
 ![](https://komarev.com/ghpvc/?username=decolita&label= 🦭 &color=ab1b16&style=plastic)
 
