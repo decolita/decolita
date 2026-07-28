@@ -6,7 +6,7 @@
 </p>w2int since i'm usually offtab/afk ... cudcomf so feel free to c+h anytime if im alone even if c+h isnt in my name ^_^<p>
 
 </p> vv send me stuff on straw + ata! i havent updated straw in months and prob wont for a while, rentry is new</p>
-</p> <a href="https://rentry.co/chilipepper">rentry</a> . <a href="https://rorosalie.straw.page">strawpage</a> . <a href="https://decolita.atabook.org/">atabook</a> . <a href="https://resite.link/hardapplecandy">resite.link</a> 
+</p> <a href="https://rentry.co/chilipepper">rentry</a> . <a href="https://rorosalie.straw.page">strawpage</a> . <a href="https://decolita.atabook.org/">atabook</a> . <a href="https://resite.link/Chili">resite.link</a> 
 
 <img width="800" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
 
