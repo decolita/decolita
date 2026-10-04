@@ -1,16 +1,17 @@
 
-<img width="800" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
-<img width="700" height="500" src="https://artx-images.s3.eu-west-1.amazonaws.com/195381/chat-uploads/9ZWKqCkShg1879Kx-BU0LvVFIdAw1QhMN">
-<img width="800" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
+<img width="550" height="55" src="https://neckdoll.zombie.jp/material/line/goth-race/line-goth01.gif">
+<img width="700" height="500" src="https://files.catbox.moe/276eqt.jpg">
+<img width="550" height="55" src="https://neckdoll.zombie.jp/material/line/goth-race/line-goth01.gif">
 </p>rosalie - she/her, 5teen (oct 14 🎂) - ENG+ITA (sto ancora imparando)</p>
 </p>w2int since i'm usually offtab/afk ... cudcomf so feel free to c+h anytime if im alone even if c+h isnt in my name ^_^<p>
 
-</p> I need to update some things on the rentry and the strawpage hasn't been edited in about a year atp but i'll get to taking care of those SOON.... in the meantime you should totally send gimmicks to my strawpage and send a message on my ata!!! i will respond [eventually] </p>
+</p> my strawpage is long overdue for an update as i havent edited it in about a year! I plan to edit, reword, and tidy up my rentry as well as my github page soon, too! please be patient i am struggling really bad with procrastination LMAOO in the meantime, feel free to leave a message on my strawpage or atabook!!! I will respond!!*</p>
 </p> <a href="https://rentry.co/chilipepper">rentry</a> . <a href="https://rorosalie.straw.page">strawpage</a> . <a href="https://decolita.atabook.org/">atabook</a> . <a href="https://resite.link/Chili">resite.link</a> 
+</p> * i will reply to strawpage gimmicks whenever i get the chance to revamp my strawpage, atabook messages will get responses much sooner!! either same day or within the next day or so....</p>
 
-<img width="800" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
+<img width="550" height="55" src="https://neckdoll.zombie.jp/material/line/goth-race/line-goth01.gif">
 
-![](https://komarev.com/ghpvc/?username=decolita&label= 🦭 &color=ab1b16&style=plastic)
+![](https://komarev.com/ghpvc/?username=decolita&label= 🦭 &color=d5f2ef&style=plastic)
 
 
 
