@@ -11,7 +11,7 @@
 
 <img width="550" height="55" src="https://neckdoll.zombie.jp/material/line/goth-race/line-goth01.gif">
 
-![](https://komarev.com/ghpvc/?username=decolita&label= 🦭 &color=d5f2ef&style=plastic)
+![](https://komarev.com/ghpvc/?username=decolita&label= 🦭 &color=020321&style=plastic)
 
 
 
