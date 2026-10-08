@@ -1,7 +1,8 @@
+<img width="750" height="30" src="https://files.catbox.moe/ibt6z7.png">
 
-<img width="550" height="55" src="https://neckdoll.zombie.jp/material/line/goth-race/line-goth01.gif">
-<img width="700" height="500" src="https://files.catbox.moe/276eqt.jpg">
-<img width="550" height="55" src="https://neckdoll.zombie.jp/material/line/goth-race/line-goth01.gif">
+<img width="700" height="500" src="https://files.catbox.moe/3x2cgh.png">
+
+<img width="750" height="30" src="https://files.catbox.moe/ibt6z7.png">
 </p>rosalie - she/her, 5teen (oct 14 🎂) - ENG+ITA (sto ancora imparando)</p>
 </p>w2int since i'm usually offtab/afk ... cudcomf so feel free to c+h anytime if im alone even if c+h isnt in my name ^_^<p>
 
@@ -9,7 +10,7 @@
 </p> <a href="https://rentry.co/chilipepper">rentry</a> . <a href="https://rorosalie.straw.page">strawpage</a> . <a href="https://decolita.atabook.org/">atabook</a> . <a href="https://resite.link/Chili">resite.link</a> 
 </p> * i will reply to strawpage gimmicks whenever i get the chance to revamp my strawpage, atabook messages will get responses much sooner!! either same day or within the next day or so....</p>
 
-<img width="550" height="55" src="https://neckdoll.zombie.jp/material/line/goth-race/line-goth01.gif">
+<img width="750" height="30" src="https://files.catbox.moe/ibt6z7.png">
 
 ![](https://komarev.com/ghpvc/?username=decolita&label= 🦭 &color=020321&style=plastic)
 
