@@ -3,7 +3,7 @@
 <img width="700" height="500" src="https://files.catbox.moe/3x2cgh.png">
 
 <img width="750" height="30" src="https://files.catbox.moe/ibt6z7.png">
-</p>rosalie - she/her, 5teen (oct 14 🎂) - ENG+ITA (sto ancora imparando)</p>
+</p>rosalie - she/her, 6teen (oct 14 🎂) - ENG+ITA (sto ancora imparando)</p>
 </p>w2int since i'm usually offtab/afk ... cudcomf so feel free to c+h anytime if im alone even if c+h isnt in my name ^_^<p>
 
 </p> my strawpage is long overdue for an update as i havent edited it in about a year! I plan to edit, reword, and tidy up my rentry as well as my github page soon, too! please be patient i am struggling really bad with procrastination LMAOO in the meantime, feel free to leave a message on my strawpage or atabook!!! I will respond!!*</p>
