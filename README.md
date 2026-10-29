@@ -6,7 +6,7 @@
 <p align="center"><b>eng</b> + ita, my italian is a bit rusty but i'll still know what you're saying</p>
 <p align="center"> w2i or messaging thru ata preferred since im typically offtab and may miss public chat messages -- cudcomf, feel free to c+h anytime if im alone!!
 <p align="center"><a href="https://straw.page/rorosalie">strawpage</a> . <a href="https://decolita.atabook.org">atabook</a> . <a href="https://pronouns.cc/shirolita">prns.cc</a></p>
-<p align="center"> all of my links are being updated right now... strawpage has barely been updated in about a year so don't refer to anything written on it atm</p>
+<p align="center"> STRAWPAGE IS A WIP i'm in the process of remaking it</p>
 
 
 <img width="750" height="30" src="https://files.catbox.moe/ibt6z7.png">
